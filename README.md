@@ -1,5 +1,5 @@
 # F3M WHO? 
-X: @xyz_szn    TG: fem1ak    EMAIL: akinyemi.fem@gmail.com
+X: @xyz_szn  -  TG: fem1ak  -  EMAIL: akinyemi.fem@gmail.com
 
 **PROFILE**:
 I'm a crypto degen, IT specialist, and a community-driven raiding and shilling expert. I bring tech skills and community-building strategies together to boost token projects and keep communities engaged. 
