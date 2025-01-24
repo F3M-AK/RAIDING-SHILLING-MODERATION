@@ -17,7 +17,7 @@ ENGLISH (FLUENT)
 **SKILLS**
 - Crypto & Trading: Market analysis, raiding strategies, shilling campaigns.
 - Moderation: Managing Telegram groups, driving discussions, and fostering community growth.
-- Tools: Git, GitHub, Telegram, Discord and more.
+- Tools: Git, GitHub, Telegram and more.
 
 **PROJECTS**
 - Raiding Campaigns: Successfully raided and shilled past and ongoing projects like $BER, $COPE, $FYP, $RUDOLPHED, $HITS and many more available upon requests with screenshots included.
